@@ -1,5 +1,5 @@
 # 💫 About Me:
-B.Tech'2024 ( CSE )<br> Full Stack Developer<br>😄 Pronouns: he/him<br>🌱 I’m currently looking for an opportunity<br>📫 How to reach me: Through [[E-mail](mailto:kambojsagar4843@gmail.com)] and [[Linkedin](https://www.linkedin.com/in/sagar-kamboj9192)]
+B.Tech CSE<br> JMIT'2024 <br> Full Stack Developer<br>😄 Pronouns: he/him<br>🌱 I’m currently looking for an opportunity<br>📫 How to reach me: Through [[E-mail](mailto:kambojsagar4843@gmail.com)] and [[Linkedin](https://www.linkedin.com/in/sagar-kamboj9192)]
 
 
 ## 🌐 Socials:
